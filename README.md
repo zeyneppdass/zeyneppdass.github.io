@@ -1,0 +1,1 @@
+# zeyneppdass.github.io-7.sinif-kuvvet-ve-enerji
